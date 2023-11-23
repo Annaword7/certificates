@@ -13,3 +13,6 @@
 
 ![iScreen Shoter - Safari - 231123142239](https://github.com/Annaword7/certificates/assets/104025163/eb23c59f-26d8-4549-a085-2bcf2d552755)
 
+![iScreen Shoter - Safari - 231123142610](https://github.com/Annaword7/certificates/assets/104025163/487215cf-cf42-4b0e-9857-5f44edbb5987)
+
+
