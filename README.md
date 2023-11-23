@@ -1,4 +1,6 @@
 # certificates
+![iScreen Shoter - Safari - 231123144635](https://github.com/Annaword7/certificates/assets/104025163/555133a3-a433-4359-acc4-5e646e57fc59)
+
 ![GCP certificate X7-2](https://github.com/Annaword7/certificates/assets/104025163/804698f2-84e7-44d0-8502-5401ba87a2b1)
 
 ![Data analyst Yana Postnova](https://github.com/Annaword7/certificates/assets/104025163/6f0c33d0-5e6c-4303-ab76-8733aacff61b)
