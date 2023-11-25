@@ -1,5 +1,5 @@
 # certificates
-![iScreen Shoter - Safari - 231123144635](https://github.com/Annaword7/certificates/assets/104025163/555133a3-a433-4359-acc4-5e646e57fc59)
+![image](https://github.com/Annaword7/certificates/assets/104025163/012cc843-29c2-48df-a7ac-5765738f99b8)
 
 ![GCP certificate X7-2](https://github.com/Annaword7/certificates/assets/104025163/804698f2-84e7-44d0-8502-5401ba87a2b1)
 
